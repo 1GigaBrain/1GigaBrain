@@ -1,0 +1,4 @@
+- Hi, I’m @1GigaBrain
+- I’m interested in VR/gaming
+- I’m currently learning Computer arts
+- I’m looking to collaborate on random stuff
